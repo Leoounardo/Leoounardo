@@ -2,7 +2,7 @@
 
 ### I'm a Junior Developer !
 
-- I’m currently learning everything about Flutter and Machine Learning.
+- I’m currently learning everything about MQL5 and Machine Learning.
 
 ### Connect with me:
 
