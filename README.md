@@ -1,6 +1,6 @@
 ## Hi, I'm Leonardo - [Leoounardo][website] 
 
-### I'm a Junior Developer !
+### I'm a Junior Developer!
 
 - I’m currently learning everything about MQL5 and Machine Learning.
 
