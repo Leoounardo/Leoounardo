@@ -1,8 +1,6 @@
 ## Hi, I'm Leonardo - [Leoounardo][website] 
 
-### I'm a Junior Developer!
-
-- I’m currently learning web development.
+- I’m currently learning web3.0
 
 ### Connect with me:
 
