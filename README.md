@@ -2,7 +2,7 @@
 
  
 
-### Medite, pratique winhoff, caridade e disciplina. Em resumo, evolua!
+### Conhecimento e caridade :)
  
 
  
