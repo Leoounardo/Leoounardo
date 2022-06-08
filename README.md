@@ -2,7 +2,7 @@
 
  
 
-### Uma das virtudes mais bela de meditar é poder, com clareza, dizer: Eu sou eu mesmo.
+### Medite, pratique winhoff, caridade e disciplina. Em resumo, evolua!
  
 
  
